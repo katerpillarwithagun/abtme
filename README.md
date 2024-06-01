@@ -5,4 +5,4 @@
 
 <p>fandom dump - reverse:1999 / object shows / adventure forward / blocktales / genshin / guts & blackpowder / lacey's games / law of talos / ddlc</p>
 
-<p>(i'll make this look better later)</p>
+<p><i>(i'll make this look better later)</i></p>
