@@ -5,4 +5,4 @@
 
 <p>fandom dump - reverse:1999 / object shows / adventure forward / blocktales / genshin / guts & blackpowder / lacey's games / law of talos / ddlc</p>
 
-<p>SHAMELESS PLUG: <a href="https://toyhou.se/katerpillarwithacode">use my toyhouse codes i beg</a></p>
+<p><i>SHAMELESS PLUG: <a href="https://toyhou.se/katerpillarwithacode">use my broken toyhouse codes i beg</a></i></p>
